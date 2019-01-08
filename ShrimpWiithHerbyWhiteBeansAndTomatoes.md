@@ -11,4 +11,5 @@
 * Thick slices of crusty toasted bread (for serving)
 ## Preparation
 Heat 2 Tbsp. oil in a large skillet over medium; cook shallot until just softened and golden, about 2 minutes. Add tomatoes with their juices, 1/4 tsp. salt, 1/4 tsp. pepper, and 1/4 cup water. Increase heat to high, bring to a boil, and cook until sauce thickens slightly, about 5 minutes. Reduce heat to low, add beans and 1/4 cup Roasted Garlic Herb Sauce, and cook, stirring, until warmed through, 1–2 minutes. Taste and adjust salt if needed, then divide bean mixture between 2 large, shallow bowls.
+
 Wipe out skillet. Heat remaining 1 Tbsp. oil in skillet over medium-high. Add shrimp and remaining 1/4 tsp. salt and 1/4 tsp. pepper. Cook, stirring often, until shrimp is cooked through and starting to take on a little color on both sides, about 3 minutes. Divide shrimp between bowls with beans; drizzle with additional sauce. Serve with toast alongside.
